@@ -64,3 +64,7 @@ Assuming 100 Shekel (22$) hourly rate for instructors and Secretarial duties,
 
 
 estimating 8400 shekel monthly expenses.
+
+Equipment costs would range between 4000 and 6000 shekel (boxing bags? yoga mats? first aide kits?)
+
+Backup Fund of 10,000 Shekel would be slowly worked towards (Taxi broken? private car? general emergencies?)
