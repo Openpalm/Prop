@@ -54,11 +54,11 @@ Assuming 100 Shekel (22$) hourly rate for instructors and Secretarial duties,
 
 2400 x 2  A salary of for each instructor (36 basis ?)
 
-1000 Legal costs
+1000 Legal costs (assuming 10 hours a week, though no on going? in essence, a 12,000 yearly expenses for legalities?)
 
-1000 Student Taxi costs
+1000 Student Taxi costs (assuming 30 minute drives? / 6 hours a week?)
 
-2000 Secretarial costs
+1000 Secretarial costs (roughly 10 hours a month?) 
 
 2000 Rent
 
