@@ -50,7 +50,7 @@ Per month estimate
 
 ### Instructors
 
-Assuming 100 Shekel (22$) hourly rate for instructors and Secretarial duties,
+Assuming 100 Shekel hourly rate for instructors and Secretarial duties,
 
 2400 x 2  A salary of for each instructor (36 basis ?)
 
