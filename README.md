@@ -18,7 +18,7 @@ Starting with villages of Judeida-Maker, Kofr-yasif and Majd El Kuroom, a progra
 
 15 minute ending meditation
 
-90 minutes in total for each Unit. (54 monthly hours)
+90 minutes in total for each Unit. (36 monthly hours)
 
 offered 6 times a week to young individuals, with a focus on young women ages 10+, and hoping to expand into offering this to both genders.
 
@@ -52,13 +52,15 @@ Per month estimate
 
 Assuming 100 Shekel (22$) hourly rate for instructors and Secretarial duties,
 
-3500x2 A salary of for each instructor (45 monthly hours)
+2400 x 2  A salary of for each instructor (36 basis ?)
 
 1000 Legal costs
+
+1000 Student Taxi costs
 
 2000 Secretarial costs
 
 2000 Rent
 
 
-estimating 12,000 shekel monthly expenses.
+estimating 8400 shekel monthly expenses.
